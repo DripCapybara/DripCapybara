@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DripCapybara
 - 👀 I’m interested in roblox coding
 - 🌱 I’m currently learning python
-- 📫 How to reach me discord
+- 📫 How to reach me: on discord (dripocapy)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i learned coding in less than a year lol
 
